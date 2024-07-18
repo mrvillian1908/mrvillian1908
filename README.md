@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @mrvillian1908
 - 👀 I’m interested in hacking
 - 🌱 I’m currently learning code and password cracking
-- 📫 reach me bt my eyeside..
+- 📫 reach me by my eyeside..
 - ⚡ Fun fact: i will kill u with smile
 
 
